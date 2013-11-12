@@ -1,8 +1,10 @@
-# jenny allar #
+![](http://i.imgur.com/FgnU4O5.png)
 
-----------
+# Jenny Allar #
 
-<div style="float: right"><img src="http://i.imgur.com/KXnX5FO.png" /></div>
 
-### Resume ###
+### About Me ###
+
+
+
 
